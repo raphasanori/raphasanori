@@ -1,1 +1,1 @@
-### Você encontrará mais informações sobre mim em: www.toaru.com.br
+### ここでわたくしに関する詳細情報を見つけることができますわ：https://toaru.com.br
